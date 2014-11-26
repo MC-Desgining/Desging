@@ -1,8 +1,8 @@
 Drawing
 =========
 I recomend manga Studio 5 (or later)
-t costs money yes so if your that guy
-who like to pirate do on this
+it costs money yes so if your that guy
+who like to pirate do it on this
 then start desging your charater (it can be anything for practice)
 So start with 2D then start graguly mooving on to 3D
 
